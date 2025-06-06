@@ -32,7 +32,7 @@ You can:
 
 ## Contact Information
 
-For questions about this privacy policy, contact: [your.email@example.com](mailto:your.email@example.com)
+For questions about this privacy policy, contact: [simolkhalidi22@gmail.com](mailto:simolkhalidi22@gmail.com)
 
 ## Updates
 
